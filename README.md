@@ -1,6 +1,8 @@
-#- Música
+# Música
 ## MaiaraeMaraisa
 [Maiara & Maraisa - Medo](https://youtu.be/Jzl_nrTkfIM?si=ItAl4tbHPcgOqTLI)
+_essa dupla é demais_
+**essa dupla arrasa**
 
 (https://media.tenor.com/ClL_9UGzrusAAAAi/musical-notes.gif)
 
