@@ -1,7 +1,6 @@
 #- Música
-##MaiaraeMaraisa
-
-  [ Maiara & Maraisa - Medo](https://media.tenor.com/ClL_9UGzrusAAAAi/musical-notes.gif)
+## MaiaraeMaraisa
+[ Maiara & Maraisa - Medo](https://media.tenor.com/ClL_9UGzrusAAAAi/musical-notes.gif)
 
 
 
