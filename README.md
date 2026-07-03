@@ -21,7 +21,7 @@ _essa dupla é demais_
 -O sucesso estrondoso como cantoras veio em 2015 com o hit "10%" e, logo em seguida, com a música "Medo Bobo".
 -São consideradas pioneiras do movimento que colocou as mulheres no topo da música sertaneja atual. Marcaram a história da música brasileira com o projeto e a turnê em parceria com a grande amiga ---MaríliaMendonça.
 -Expandiram seu sucesso para além dos palcos atuando como apresentadoras na TV e técnicas do programa The Voice (Rede Globo).
-![gif](https://media1.tenor.com/m/phW0XMhg-kMAAAAd/maiara-maraisa.gif)
+![gif](https://media1.tenor.com/m/Wp28oZMQ2F4AAAAd/maraisa-maiara-e-maraisa.gif)
 
 
 
